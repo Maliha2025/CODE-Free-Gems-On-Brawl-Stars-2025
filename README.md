@@ -1,4 +1,7 @@
 # Free-Gems-On-Brawl-Stars-2025
+
+<h2><a href="https://allresources.xyz/brawlstars.html/">LEARN MORE</a></h2>
+
 <!DOCTYPE html>
 <html lang="en">
 <head>
